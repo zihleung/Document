@@ -1,2 +1,3 @@
 # my-python-learning-share
-if u wanna report it , plz let me know first . thx . 
+if u wanna report any of them , plz let me know first . thx . 
+Email : zihleung@hotmail.com

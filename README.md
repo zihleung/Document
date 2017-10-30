@@ -1,3 +1,6 @@
 # A Notation of My Files
-if u wanna report any of them , plz let me know first . thx .   
+Welcome!  
+If u wanna report any of them , plz let me know first .   
+Thx .   
+By : zihl.kdt  
 Email : zihleung@hotmail.com
